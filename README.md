@@ -2,6 +2,7 @@
 
 Welcome to the study recordings archive for *Saṃskāra Ratna Mālā*.
 This page provides an index to all recordings and the corresponding page ranges in the text.
+अयं  संस्कृतभारती-वर्गः आचार्यैः ब्रह्म्श्री-नरेन्द्रकाप्रेवर्यैः 2025-Dec-आरभ्य अध्यापितः । 
 
 ---
 
